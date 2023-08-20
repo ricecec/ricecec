@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ricecec
 - 👀 I’m interested in danganronpa,jjba,skullgirls etc :3
-- 🌱 I’m current
-- 💞️ I’m looking to collaborate on ...
+- 🌱 oh good lord PLSSSSSSSSSSSSSS INTERACT WITH ME i might be slow at talking!!!!its bc im on my laptop trust!!!!!!!!1
+- 💞
 - 📫 How to reach me ...
 
 <!---
